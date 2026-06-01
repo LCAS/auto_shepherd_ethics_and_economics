@@ -1,0 +1,20 @@
+# 2025 Summer School Ethical -10
+
+﻿How many sheep do you have? I don't know, there's quite a few. They've got loads of different breeds as well. Is it in a scale of 110? I can ask! Again! Daily! How many sheep do you say they are in the park? 
+Two. That's quite a lot! Not that many compared to what we used to do. We always used to use the same size. So the downsides are much better. Did you ever use to have a sheep dog? Never! No, just if you run around like that, now it's loose. 
+How would you say the hardest part of herding the sheep? What was that? Oh yeah, can we turn it into me? What was the hardest part of herding the sheep back when it was just... 600 cheap and you? The amount of bodies really. 
+If you've got them in a big field, all it takes is a couple orders to go a complete different direction, you lose them all, then it's a back square one, running back round. But we do train a lot of owls with a bucket, a bucket of food. 
+If we know we've got to move them, we work with them, we will use the bucket to help aid our health. They just follow the bucket of food. They run at us and a couple of people pick up any stragglers and keep them running with a group. 
+And that tends to work for us. It doesn't always work for us. I've been knocked over by one another. Do you ever worry about the sheep's safety when you're herding the sheep? We always try and keep it controlled, so obviously we work with the public and things like that, so we'll keep, we'll do it in public time, so before we open or once in a place. 
+And we always try to keep everywhere. Slows off, which needs to be any gates blocking, any guts, hurdles blocking anything towards roads. We don't tend to be near roads. If we ever are, we tend to use a trailer and get one of our trailers to have the milk. 
+So this study is for putting a robot sheepdog instead of a normal sheepdog? What do you think of that sort of technology? Do you think you could train farmers to use that and stuff? New age of farmers, potentially. 
+And this old age farmer. Nothing. Not a chance. And what do you think the main hurdle is, just... Just letting technology venture into something where it's not really a technology work. Don't get me wrong, it is picking up, so obviously all your farming, you can have program tractors, we just have some on Saturday, and a tractor does all the work. 
+And it's just funding, I think. Funding and just encouraging it to be important. It's definitely a step which I think could happen. But then it's also making the sheep understand it. Because some sheep will look at it if you like. 
+They won't react to it the same as a dog, the dog is obviously predatory, and it's their instinct to get away from it. So the sheepdog running around, it encourages them to get out of the way. So the sheep need to understand it as well, which is another hurdle to it. 
+It's not essential how you combat it. Will it make it look, will you make it look like a dog? Yeah, well we've done some testing and it does away because it is like this big on all fours, like runs around. 
+It's quite scary. Yeah, I think that's a lot of questions. Oh, one, few more. Sorry, if this is a real product, will you think about purchasing one? Yeah, yeah, yeah. If this is a real product, will you think about purchasing one? 
+And if yes, what is what will be the price range you think is reasonable? For a small farm like yourselves, probably none. Just because funding isn't massive. We're a lot of fun people coming in and current cost of living, we're a luxury. 
+Where people come to the farm as a luxury and people don't have that money to spend. So it's a smaller farm, probably not. But bigger farms potentially, it depends. A lot of it is on time, really. And a lot of farmers out in the Highlandsville just go cheaper straight down the road. 
+And they don't worry about it because when you've got thousands, the odd straggler, it should have run back in with the group. And price range. Okay, no idea. Thank you very much. Thank you very much for your answer, that's... 
+
+
